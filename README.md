@@ -1,16 +1,20 @@
-### Hi there 👋
+BEM VINDOS AO MEU PERFIL
 
-<!--
-**KAROLQJARDIM/KAROLQJARDIM** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+MEU NOME É KAROLINE 
 
-Here are some ideas to get you started:
+TENHO 16 ANOS
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+SOU ESTUDANTE
+
+GOSTO DE MUSICAS POPS 
+
+FAÇO CURSO DE INGLES E INFORMATICA 
+
+
+TENHO UMA GATA QUE SE CHAMA LULU
+
+![istockphoto-1439973042-1024x1024](https://github.com/KAROLQJARDIM/KAROLQJARDIM/assets/169559967/120fc8bf-0780-4a20-b599-9604e1497669TENHO UMA GATA QUE SE CHAMA LULU
+
+
+
+
